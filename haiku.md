@@ -2,9 +2,9 @@ Hello World!
 
 
 
-
-
-
+Open the window,
+let that stupid fly outside,
+then shut the window!
 Autumn moonlight
 a worm digs silently
 into the chestnut
